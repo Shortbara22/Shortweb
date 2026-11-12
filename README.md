@@ -1,0 +1,1 @@
+Welcome to the Shortweb! Go to https://shortbara22.github.io/Shortweb/ to see sneakpeaks of all of my projects! You're welcome to learn from the code but PLEASE do not take the art(there's a reason why its watermarked!). Hope you enjoy your time at the SHORTWEB!
